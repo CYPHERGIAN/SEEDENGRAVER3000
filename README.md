@@ -30,8 +30,8 @@ Everything is cost price, because the main goal is to spread safety best practic
 Because you are a member of your local community and want to help your fren.   
 Because that's the best way to keep your seed nice and safe.  
 Because you're a paranoid.   
-Because selling washers and capsules is a good way to stack some no-kyc sats! 
-Because you can buy it, use it and then resell it for sats.
+Because selling washers and capsules is a good way to stack some no-kyc sats!  
+Because you can buy it, use it and then resell it for sats.  
 Because you have a obsessive-compulsive disorder and want to store your stuff in a perfectly symmetrical way.  
 
 If your will is to buy it in order to spread this best practice among the plebs, keep in mind that  
